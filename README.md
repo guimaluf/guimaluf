@@ -18,8 +18,6 @@ Se tiver interesse é só entrar em contato comigo por email guimalufb@gmail.com
 |  | |  |![](img/DSC00368.JPG)|
 |  | |  |![](img/DSC00369.JPG)|
 |  | |  |![](img/DSC00371.JPG)|
-| Cavalete + Tampo | R$0 | 1 | ![](img/DSC00372.JPG) |
-|  | |  |![](img/DSC00373.JPG)|
 | Cortina 165x145 | R$60 | 1 | ![](img/DSC00376.JPG) |
 | Cortinas 200x165 | R$100 | 2 | ![](img/DSC00377.JPG) |
 |  | |  |![](img/DSC00378.JPG)|
