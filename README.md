@@ -3,8 +3,7 @@
 Olá, estou me mudando de casa e por isso estão a venda os itens abaixo.
 
 * Se o item está aqui é por que ele está disponível
-* O cavalete e o tampo estou doando
-* Os itens estarão disponíveis até 20 de Setembro de 2019
+* Os itens estarão disponíveis até 15 de Setembro de 2019
 * O carreto fica por sua conta :)
 
 Se tiver interesse é só entrar em contato comigo por email guimalufb@gmail.com.br ou telefone/WhatsApp (31) 9 9809 6559
