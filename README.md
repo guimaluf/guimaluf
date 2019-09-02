@@ -12,7 +12,6 @@ Se tiver interesse é só entrar em contato comigo por email guimalufb@gmail.com
 
 |Item|Preço|Quantidade|Foto|
 |---|---|---|---|
-| Estante Branca | R$70 | 1 | ![](img/DSC00362.JPG) |
 | Arquivo de Aço | R$200 | 1 |![](img/DSC00363.JPG)|
 |  | |  |![](img/DSC00364.JPG)|
 | Sofa 2 lugares | R$1200 | 1 | ![](img/DSC00367.JPG) |
