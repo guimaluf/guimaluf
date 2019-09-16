@@ -13,8 +13,3 @@ Se tiver interesse é só entrar em contato comigo por email guimalufb@gmail.com
 |---|---|---|---|
 | Arquivo de Aço | R$200 | 1 |![](img/DSC00363.JPG)|
 |  | |  |![](img/DSC00364.JPG)|
-| Sofa 2 lugares | R$1200 | 1 | ![](img/DSC00367.JPG) |
-|  | |  |![](img/DSC00368.JPG)|
-|  | |  |![](img/DSC00369.JPG)|
-|  | |  |![](img/DSC00371.JPG)|
-| Estante de Madeira G| R$140 | 1 | ![](img/DSC00374.JPG) |
